@@ -1,0 +1,3 @@
+My Hobby is...
+🌳 Walking
+🎮 Gaming
