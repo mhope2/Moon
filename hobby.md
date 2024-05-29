@@ -1,4 +1,4 @@
-My Hobby is...
-🌳 Walking
-🎮 Gaming
-🎹 Piano 
+My Hobby is...  
+🌳 Walking  
+🎮 Gaming  
+🎹 Piano  
